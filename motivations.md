@@ -1,0 +1,5 @@
+Deciding to leave teaching was a hard choice. For what it's worth, I really genuinely enjoyed the teaching part of it. But, teaching is about 40% of being a modern teacher. And at the end of the week, that other 60% killed me. I had no personal life, no work/life balance, i could barely afford the 200 square foot rat-infested studio I was living in AND, after two years of study, the school I was studying at lost its accreditation, and I lost all of my progress towards my master's degree. That was the last straw, and I decided to take some time soul searching. I didn't know what was next, but I knew I was done with ed.  
+
+I had actually considered becoming a coder back in 2008 when I was a wee undergraduate. I had taken a coding class in high school, and kept messing around with DoS on my own. I nearly got a Cisco cert, but my guidance counselor was adamant that I could not take classes at the tech center. Our school was a bit messed up.
+
+So, I reached back out to some old friends who said that bootcamps were the way to transition in the modern day, and started looking at Turing after a close friend enrolled. The rest is history! 
